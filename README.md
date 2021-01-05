@@ -1,6 +1,7 @@
 # Group2
 
-De Leon, John Patrick Estrada - Leader
+Intia, Mary Rose Ocbian  - Leader
+De Leon, John Patrick Estrada
 Dela Luz, Sunshine Manog
 Bodino, Alissa Tullao
 Combalicer, Patrisha Rae Asis
